@@ -1,0 +1,1 @@
+Here is responsive pages produced in my training
